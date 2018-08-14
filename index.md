@@ -27,4 +27,4 @@ Make sure this process leads you to self-healing. A broken heart is not very eas
 
 ## Need to bust a cheater?
 
-Visit http://github.com - automatic! and use their anonymous bust a cheater app to help you catch your cheating spouse.
+Visit Spyfor.me and use their anonymous [bust a cheater app](https://spyfor.me/) to help you catch your cheating spouse.
